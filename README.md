@@ -1,2 +1,2 @@
 # townghost
-user townghost repository
+leader demeter of the dark arts
